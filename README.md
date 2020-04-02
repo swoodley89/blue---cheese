@@ -1,1 +1,1 @@
-# blue---cheese
+# blue-cheese
